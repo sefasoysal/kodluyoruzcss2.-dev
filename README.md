@@ -1,0 +1,1 @@
+CSS Konusunun 2. ödevidiv bu ödevde google'ın 1998 sürümünün bir kopyasını yapmaya çalıştım
